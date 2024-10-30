@@ -25,3 +25,17 @@ Sou meio imperativa, então ficar o dia inteiro mechendo no celular nunca foi "a
 10. **16:40** tomo um banho e faço as atividades do colégio
 11. **19:00** vejo um filme com os meus pais
 12. **21:30** vou me deitar
+
+
+#### DIAS DE AULA DE PIANO
+**assunto**|**dia**
+---------|--------
+leit. m | quarta-feira 
+tocar   | sexta-feira
+
+##### DIAS QUE VOU CORRER
+**horário**|**dia**
+-----|--------------
+5:00 | segunda-feira
+5:30 | quinta-feira 
+8:00 | sábado
