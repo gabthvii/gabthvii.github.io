@@ -1,3 +1,6 @@
+![](https://www.google.com/search?q=fundo%20imagem&udm=2&uds=ADvngMjcH0KdF7qGWtwTBrP0nt7djBpMizJIN8Ewe_w-KNs6oFRjmqCPXz_9L0FsuXs1whVJ9CxgqRoWlWLgbjmXmbzHLQYk4AtvU-XMDTYQ0epQ8JRBcyt42b0OWa3Hgy3XuIzSxHgKNpXd7aRxVKvyiZP0S8ijqg&tbs=rimg:CaRsPMehUPDoYdmSR0WgU15vsgIRCgIIABAAOgQIARAAVaN-Kz_1AAgDYAgHgAgA&client=ms-android-xiaomi-terr1-rso2&cs=1&hl=pt-BR&sa=X&ved=0CBIQuIIBahcKEwjg4Our8rSJAxUAAAAAHQAAAAAQdw&biw=393&bih=754&dpr=2.75#imgrc=2PyYvOd7SfHvyM&imgdii=-RdEKtfokN37CM)
+
+
 # CAMPO MINADO 
 
 Olá, me chamo Gabrielly Nayara, tenho 16 anos. Atualmente estou cursando t.i no instituto federal e fazendo um curso de piano. 🎹🧑‍🚒
@@ -10,15 +13,15 @@ Sou meio imperativa, então ficar o dia inteiro mechendo no celular nunca foi "a
 
 ### ROTINA
 (ela varia, vou citar a de sexta feira)
-1. 6:00 acordo, todo um banho e me arrumo para a escola
-2. 7:00 saio de casa
-3. 7:20 chego no colégio 
-4. 13:00 volto para casa
-5. 13:30 almoço e limpo a casa
-6. 15:00 estudo piano até o horário da minha aula
-7. 16:30 saio de casa e vou para a aula de piano
-8. 17:00 chego no curso
-9. 16:20 saio do curso e volto para a casa
-10. 16:40 tomo um banho e faço as atividades do colégio
-11. 19:00 vejo um filme com os meus pais
-12.21:30 vou me deitar
+1. **6:00** acordo, todo um banho e me arrumo para a escola
+2. **7:00** saio de casa
+3. **7:20** chego no colégio 
+4. **13:00** volto para casa
+5. **13:30** almoço e limpo a casa
+6. **15:00** estudo piano até o horário da minha aula
+7. **16:30** saio de casa e vou para a aula de piano
+8. **17:00** chego no curso
+9. **16:20** saio do curso e volto para a casa
+10. **16:40** tomo um banho e faço as atividades do colégio
+11. **19:00** vejo um filme com os meus pais
+12. **21:30** vou me deitar
