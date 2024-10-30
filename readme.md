@@ -12,7 +12,7 @@ Sou meio imperativa, então ficar o dia inteiro mechendo no celular nunca foi "a
 
 
 ### ROTINA
-(ela varia, vou citar a de sexta feira)
+> ela varia, vou citar a de sexta-feira
 1. **6:00** acordo, todo um banho e me arrumo para a escola
 2. **7:00** saio de casa
 3. **7:20** chego no colégio 
