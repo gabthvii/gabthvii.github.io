@@ -1,4 +1,4 @@
-![](https://www.google.com/search?q=fundo%20imagem&udm=2&uds=ADvngMjcH0KdF7qGWtwTBrP0nt7djBpMizJIN8Ewe_w-KNs6oFRjmqCPXz_9L0FsuXs1whVJ9CxgqRoWlWLgbjmXmbzHLQYk4AtvU-XMDTYQ0epQ8JRBcyt42b0OWa3Hgy3XuIzSxHgKNpXd7aRxVKvyiZP0S8ijqg&tbs=rimg:CaRsPMehUPDoYdmSR0WgU15vsgIRCgIIABAAOgQIARAAVaN-Kz_1AAgDYAgHgAgA&client=ms-android-xiaomi-terr1-rso2&cs=1&hl=pt-BR&sa=X&ved=0CBIQuIIBahcKEwjg4Our8rSJAxUAAAAAHQAAAAAQdw&biw=393&bih=754&dpr=2.75#imgrc=2PyYvOd7SfHvyM&imgdii=-RdEKtfokN37CM)
+![](![17302502250738309265138977764519](https://github.com/user-attachments/assets/28c27c3e-66e6-44d3-9e24-fb3972935c5e))
 
 
 # CAMPO MINADO 
